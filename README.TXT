@@ -9,7 +9,7 @@ Música/Artista
 
 1. Piloto Automático - Supercombo
 2. Maremotos - Supercombo
-3. O tiro - Scatolove
+3. O Tiro - Scatolove
 
 Internacionais:
 Música/Artista
